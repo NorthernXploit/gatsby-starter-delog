@@ -1,3 +1,9 @@
+---
+path: /best-way-to-reconnect
+date: 2022-06-18T12:38:11.437Z
+title: 8 Best steps to reconnect with your ex boyfriend
+thumbnail: /assets/nsnrporters.jpeg
+---
 The decision to get back with your ex shouldn't be a hasty one. After all, your relationship ended for a reason. However, that doesn't mean that you can't reunite with your ex and build a healthier relationship.  
 
 Many couples who have called it quits end up getting back together. In fact, a 2013 study found that over one third of couples who live together and one fifth of married couples have experienced a breakup and gotten back together. 
